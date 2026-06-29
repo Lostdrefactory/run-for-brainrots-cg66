@@ -1,4 +1,4 @@
-#  
+#  run for brainrots stealth Scripts is the best run for brainrots Script, featuring auto-collect and anti-ban. Safe and powerful for all your needs.
 
 
 
